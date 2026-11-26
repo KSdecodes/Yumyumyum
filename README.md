@@ -1,1 +1,1 @@
-# Yumyumyum!
+# Yumyumyum
